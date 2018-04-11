@@ -1,0 +1,4 @@
+# solar-light
+We are the manufacturer in China. So don't worry about the quality. Welcome to visit our store. We handling all kind of solar light. if you are interested in our products. Contact me. E-mail: solarlicyp@foxmail.com
+With the establishment of Janurary 10th, 2014. Zhongshan Ymf Lighting Co., Ltd, is located in Guzhen town,Zhongshan Guangdong province, China. As a leading intergrated productin and maketing company.it features strict production management, professional R&D team and higgh quality products. It deals in full range of solar light both indoor and out door. Morrever, its products are well received by the cusromersat home and abroad, sold well in Malaysia, pakistan, vietnam and India. Most importantly, it has ceertifies by CEand Rohs in productin of its solar light. that is why oour products are quality guaranteed.
+this is our website. welcom to visit.https://github.com/13192297943/solar-light.git
